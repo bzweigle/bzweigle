@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bzweigle
+- 👀 I’m interested in AR, VR, XR conversion.
+- 🌱 I’m currently learning fundraiosing initiative expansions
+- 💞️ I’m looking to collaborate on AR, VR, XR conversion
